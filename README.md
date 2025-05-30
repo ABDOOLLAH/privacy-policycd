@@ -1,0 +1,2 @@
+# privacy-policycd
+ENGLISH APP
